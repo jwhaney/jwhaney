@@ -1,3 +1,6 @@
-### _"The problem with the world is that the intelligent people are full of doubts, while the stupid ones are full of confidence."_
+### _"Well now, some days, you kill it, and some days, you just choke._
+### _Some days, you just blast off, and some days, you just smoke._
+### _Well now, maybe I do, and maybe I don't. Everybody says they'll be there,_
+### _But in the end, ya'll know they won't."_
 
--Charles Bukowski
+-Sturgill
