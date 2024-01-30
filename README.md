@@ -1,9 +1,4 @@
-### _"Well, now Lord, if you can hear me won't you throw a damn dog a bone_
-### _'Cause if the Devil shows up with a better deal this old soul's a-goin' down_
-### _Oh, I sing 'em real pretty, sing 'em real sad_
-### _And all the people in the crowd say 'He ain't half bad'_
-### _Well, they call me King Turd up here on Shit Mountain_
-### _If you want it you can have the crown"_
+#### _"And then one day you find. Ten years have got behind you. No one told you when to run. You missed the starting gun."_
+#### _"And you run, and you run to catch up with the sun, but it's sinking. Racing around to come up behind you again. The sun is the same in a relative way, but you're older, shorter of breath, and one day closer to death."_
 
-#### High Top Mountain - You Can Have the Crown
-#### Sturgill
+__Time, PF__
