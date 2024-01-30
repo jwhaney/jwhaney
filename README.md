@@ -1,4 +1,9 @@
-### _"We're dyin' to live, living to die, no matter what you believe. And all of us cry for the ones we must leave. So go and live a little, bone turns brittle and skin withers before your eyes. Make sure you give a little, before you go to the great unknown in the sky._"
+### _"Well, now Lord, if you can hear me won't you throw a damn dog a bone_
+### _'Cause if the Devil shows up with a better deal this old soul's a-goin' down_
+### _Oh, I sing 'em real pretty, sing 'em real sad_
+### _And all the people in the crowd say 'He ain't half bad'_
+### _Well, they call me King Turd up here on Shit Mountain_
+### _If you want it you can have the crown"_
 
-#### _Brace for Impact_
+#### High Top Mountain - You Can Have the Crown
 #### Sturgill
