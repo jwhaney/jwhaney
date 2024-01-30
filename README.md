@@ -1,3 +1,3 @@
-### _"And then one day you find, ten years have got behind you. No one told you when to run. You missed the starting gun."_
-### _"And you run, and you run to catch up with the sun, but it's sinking. Racing around to come up behind you again. The sun is the same in a relative way, but you're older, shorter of breath, and one day closer to death."_
-#### _Time, PF_
+### _"Hello ruby in the dust, has your band begun to rust. After all the sin we've had, I was hopin' that we turn back._ 
+### _Old enough now to change your name, when so many love you is it the same. It's the woman in you that makes you want to play this game."_
+#### _Cowgirl in the Sand, VNE (Neil Young cover)_
