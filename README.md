@@ -1,2 +1,2 @@
-### _"Hello ruby in the dust, has your band begun to rust. After all the sin we've had, I was hopin' that we turn back. Old enough now to change your name, when so many love you is it the same. It's the woman in you that makes you want to play this game."_
-#### _Cowgirl in the Sand, VNE (Neil Young cover)_
+### _"I spent my whole life wonderin' why I'm down. I don't feel easy if the blues don't come around. And my face don't look right without a frown. Well, if you can't swim, you better learn to drown."_
+#### _Learnin' to Drown, VNE_
