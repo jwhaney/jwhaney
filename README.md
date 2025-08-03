@@ -1,1 +1,1 @@
-### _"See the Forest for the Trees."_
+### _"The afterlife? I expect it to be just like the prelife."_
