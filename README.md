@@ -1,1 +1,3 @@
-### _"The afterlife? I expect it to be just like the prelife."_
+## _"Accept no one’s definition of your life; define yourself."_
+
+_Robert Frost_
