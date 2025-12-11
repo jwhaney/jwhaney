@@ -1,1 +1,1 @@
-### _"Memento mori"_
+### __Memento mori__
