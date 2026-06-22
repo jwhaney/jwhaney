@@ -1,1 +1,1 @@
-## _You are only free when you don't care what others think of you._
+## _“True freedom is the absence of self-imposed limitations.”_
